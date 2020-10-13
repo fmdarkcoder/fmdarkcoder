@@ -1,4 +1,4 @@
-### Hi there i am FunderMin nil T8etPai 👋
+### Hi there i am FounderMin nil T8etPai 👋
 
 Here are some ideas to get you started:
 
